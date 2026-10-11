@@ -1,2 +1,0 @@
-# Bright-coffee-shop
-assignment 
